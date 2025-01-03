@@ -1,1 +1,0 @@
-# organizacao_fortaleza_real
